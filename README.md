@@ -16,4 +16,4 @@ What? Is there a problem?! You don't like spinners or something???????
 
 # No no man, just put the knife....
 
-<silence> <police sirens heard in background> <scene fades>
+\<silence\> \<police sirens heard in background\> \<scene fades\>
